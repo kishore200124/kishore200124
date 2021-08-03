@@ -6,6 +6,5 @@ Hola! I'm KISHORE S 👋
 
 💬 Ask me about Biomedical,Deep Learning and Data Processing.
 
-📫 How to reach me: kishore.bm19@bitsathy.ac.in
 
 ⚡ Fun fact: When I'm not working I'm likely to hear music, yelling at athletes on TV who can't hear me, reading anything I can find on Steve Jobs and Muhammad Ali and I go by the motto “Character consists of what you do on the third and fourth tries" -->
